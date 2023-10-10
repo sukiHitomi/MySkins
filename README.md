@@ -1,4 +1,4 @@
-# weebskins
+# кРуТые щЫг! сКиНы :)
 
 ## [1. - - #Disasterpiece (NM)](https://drive.google.com/file/d/1d_JLhjdxlf1wUrDj_9tpd93LV3Fqvbgb/view?usp=drive_link)
 ![](https://i.imgur.com/uqzBKw0.jpg)
