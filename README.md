@@ -4,7 +4,7 @@
 ![](https://i.imgur.com/uqzBKw0.jpg)
 
 ## [2. - - #Disasterpiece (NC)] 
-link: (https://drive.google.com/file/d/1yguD06DJiULSfVa9dZ5dB8_wczvALCxH/view?usp=drive_link)
+link:https://drive.google.com/file/d/1yguD06DJiULSfVa9dZ5dB8_wczvALCxH/view?usp=drive_link
 ![](https://i.imgur.com/I2ztBP2.jpg)
 
 ## [3. Seoul v10] 
