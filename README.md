@@ -12,7 +12,7 @@
 ## [4. #Azerite v1.2](https://skins.osuck.net/skins/2?v=0)
 ![](https://skimg.osuck.net/260469432673932e1d895b4b2f48ef79.webp)
 
-## [kimika default nm](https://github.com/rudj-skinhub/woal/raw/tyfh/mas/kimika%20default%20nm.osk)
+## [5. kimika default nm](https://github.com/rudj-skinhub/woal/raw/tyfh/mas/kimika%20default%20nm.osk)
 ![](https://i.imgur.com/DJUsfYR.png)
 
 
